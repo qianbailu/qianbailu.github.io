@@ -1,1 +1,2 @@
-收藏地址:10010.github.io
+收藏永久地址，用不迷路
+https://qianbailu.github.io
