@@ -1,2 +1,2 @@
-收藏永久地址，用不迷路
+收藏永久地址，永不迷路
 https://qianbailu.github.io
